@@ -1,1 +1,1 @@
-# Zbiór zdjęć denostracyjnych
+# Zbiór zdjęć demostracyjnych
