@@ -1,0 +1,1 @@
+# Zbiór zdjęć denostracyjnych
